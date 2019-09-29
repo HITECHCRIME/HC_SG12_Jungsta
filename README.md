@@ -9,7 +9,7 @@ Polish rap.
 
 **Title:** Jungsta / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** x / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
