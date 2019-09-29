@@ -5,7 +5,9 @@ Hitech Crime Single 'Jungsta'
 
 ## Project Data
 
-**Title:** / **Featuring:** 
+Polish rap.
+
+**Title:** Jungsta / **Featuring:** MOTHNODE
 
 **Production:**  / **Lyrics:** 
 
